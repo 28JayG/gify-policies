@@ -1,0 +1,2 @@
+# Disclaimer
+Gify is Gifs sharing platform and people share links from different sources. If you have any problem with any gif or copyright issue over any content, just bring that to our notice at [official.gifgify@gmail.com](official.gifgify@gmail.com)  and we'll remove that link from our website.
